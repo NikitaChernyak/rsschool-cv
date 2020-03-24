@@ -9,6 +9,6 @@ Speaking about my English practice, I studied English at school for 11 years, an
 That is all for now, if you have any questions you can contact me in the following ways:
 * Telegram @nikitozz_00
 * Gmail mynewacc.create@gmail.com
-* Phone +375293229532
+* Phone +3752932***32
 * GitHub [NikitaChernyak](https://github.com/NikitaChernyak)
 
